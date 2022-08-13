@@ -1,0 +1,1 @@
+Szeretettel köszöntelek a blogomon.
